@@ -35,56 +35,38 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Greenes mourning garment giuen him by repentance at the funerals of loue, which he presentes for a f
+
+1. To the Reader.
+
 #####Body#####
 
-1. The description of his Eldest Sonne.
+1. GREENES Mourning Garment.
 
-    _ The song of a countrie Swaine at the returne of Philador.
+    _ The description of his Eldest Sonne.
 
-1. The description of the yongest sonne.
+    _ The description of the yongest sonne.
 
-    _ The song of a countrie Swaine at the returne of Philador.
+    _ Philadors request to olde Rabby Bilessy.
 
-1. Philadors request to olde Rabby Bilessy.
+    _ Rabby Bilessies answere to his sonne Philador.
 
-    _ The song of a countrie Swaine at the returne of Philador.
+    _ Rabbi Bilessies farewell to his sonne Philador.
 
-1. Rabby Bilessies answere to his sonne Philador.
+    _ The Shepheards tale.
 
-    _ The song of a countrie Swaine at the returne of Philador.
+    _ The discourse of the eldest sister.
 
-1. Rabbi Bilessies farewell to his sonne Philador.
+    _ The discourse of the second Sister.
 
-    _ The song of a countrie Swaine at the returne of Philador.
+    _ The discourse of the third sister.
 
-1. The Shepheards tale.
+    _ Philadors submission to his father at his returne.
 
-    _ The song of a countrie Swaine at the returne of Philador.
+    _ Rabby Bilessy his comfortable answere to his sonne.
 
-1. The discourse of the eldest sister.
+    _ Sophones to olde Rabby Bilessy.
 
-    _ The song of a countrie Swaine at the returne of Philador.
-
-1. The discourse of the second Sister.
-
-    _ The song of a countrie Swaine at the returne of Philador.
-
-1. The discourse of the third sister.
-
-    _ The song of a countrie Swaine at the returne of Philador.
-
-1. Philadors submission to his father at his returne.
-
-    _ The song of a countrie Swaine at the returne of Philador.
-
-1. Rabby Bilessy his comfortable answere to his sonne.
-
-    _ The song of a countrie Swaine at the returne of Philador.
-
-1. Sophones to olde Rabby Bilessy.
-
-    _ The song of a countrie Swaine at the returne of Philador.
+      * The song of a countrie Swaine at the returne of Philador.
 
 **Types of content**
 
